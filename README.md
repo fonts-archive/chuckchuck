@@ -1,6 +1,6 @@
 # 척척고딕
 
-[배포처 바로가기](https://event.chosun.com/100/100font.html)
+[배포처 바로가기](http://www.earlyfont.com/portfolio/EARLYFONT_CHUCKCHUCK)
 
 &nbsp;
 
